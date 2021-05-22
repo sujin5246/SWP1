@@ -1,2 +1,2 @@
-Sujin Park 20192102
+Sujin Park    20192102
 Kookmin Univ. SW
